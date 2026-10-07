@@ -12,7 +12,7 @@
 | **Gugus** | (JavaScript) |
 | **Akun GitHub** | https://github.com/SoonOver |
 | **Akun Instagram** | @kondisipesbuk |
-| **Profil LinkedIn** | https://linkedin.com/in/ |
+| **Profil LinkedIn** | https://linkedin.com/in/kabul-setia-putra |
 
 ---
 
